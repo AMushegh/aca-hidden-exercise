@@ -1,1 +1,1 @@
-There is 2 exercise
+There is 2 exercises
